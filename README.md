@@ -9,5 +9,4 @@
 - 👻 I’m looking for help with project practice and algorithms
 - 👻 Ask me about java basics
 - 👻 Pronouns: she/her
-- 👻 How to reach me: atwooodn@gmail.com
 - 👻 Bio：Acting fervently dumb to cope with the numb life.
